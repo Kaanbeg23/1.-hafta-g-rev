@@ -1,1 +1,1 @@
-# 1.-hafta-g-rev
+# 1.-hafta-gorev
